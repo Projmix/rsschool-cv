@@ -1,1 +1,1 @@
-https://Projmix.github.io/rsschool-cv/cv
+https://Projmix.github.io/rsschool-cv/
